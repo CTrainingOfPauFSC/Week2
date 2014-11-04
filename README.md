@@ -1,0 +1,1 @@
+###C eğitiminin ikinci haftasında yapılacaklar.
